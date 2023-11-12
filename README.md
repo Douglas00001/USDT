@@ -33,7 +33,7 @@ HOW DOES THE FAKE USDT SENDER TOOL WORKS:
 
 WhatsApp Admin: +48 732 104 969
 
-Prank a friend or love once, family with some huge money..
+Prank a friend or love once, family with some huge money
 
 Use the fake USDT generator to generate up to $500k and send it to any of your friends.
 
@@ -41,7 +41,7 @@ This software is available for Different devices, it can work for both Window an
 
 FOLLOW THE LINK BELOW TO DOWNLOAD THE SOFTWARE 
 
-https//wa.me/48732104969
+https//wa.me/12176868570
 
 
 We Provide 24/7 Support To Our client all over the world
