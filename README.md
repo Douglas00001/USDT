@@ -31,7 +31,7 @@ HOW DOES THE FAKE USDT SENDER TOOL WORKS:
 
 -Mail: cryptolordtech@gmail.com
 
-WhatsApp Admin: +48 732 104 969
+WhatsApp Admin: +48 573 560 921 
 
 Prank a friend or love once, family with some huge money
 
@@ -41,8 +41,8 @@ This software is available for Different devices, it can work for both Window an
 
 FOLLOW THE LINK BELOW TO DOWNLOAD THE SOFTWARE 
 
-https//wa.me/12176868570
 
+https://wa.me/48573560921
 
 We Provide 24/7 Support To Our client all over the world
 
